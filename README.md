@@ -5,11 +5,11 @@
 - Act of Aggression - Reboot Edition
 - Agatha Christie - The ABC Murders
 - Agent A: A puzzle in disguise
-- - Airport Madness: Time Machine
+- Airport Madness: Time Machine
 - Alan Wake
 - Alien Rage - Unlimited
 - Amnesia
-- - Ancestors Legacy
+- Ancestors Legacy
 - Attack of the Earthlings
 - Betrayer
 - Blood: Fresh Supply™
