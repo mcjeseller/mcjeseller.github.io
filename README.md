@@ -80,7 +80,6 @@
 - Super Mutant Alien Assault
 - Super Trench Attack 2
 - Super Trench Attack!
-- TOTAL STOCK AS OF 10/01
 - Teleglitch: Die More Edition
 - Tesla vs Lovecraft
 - The Black Death
