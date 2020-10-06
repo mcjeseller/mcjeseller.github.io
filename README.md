@@ -17,7 +17,6 @@
 - Car Mechanic Simulator 2015
 - Company of Heroes 2
 - Corporate Lifestyle Simulator
-- DATE ACQUIRED 10/02
 - Darksiders II Deathinitive Edition
 - Dear Esther: Landmark Edition
 - Death's Hangover
